@@ -4,7 +4,7 @@
 
 ## Contact
 * discord: Alina Medvedeva (@AlishaMv)
-* telegram: https://t.me/alisha_mv
+* telegram: [https://t.me/alisha_mv](https://t.me/alisha_mv)
 * email: medvedeva.alisha@gmail.com
 
 ## About me
